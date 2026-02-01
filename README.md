@@ -1,5 +1,4 @@
-I wander through these empty halls   
-As the moon casts shadows of just me upon the walls   
+and since we all make many promises, babe, it might not be true.
    
 <img width="340" height="312" alt="image" src="https://i.pinimg.com/736x/27/d3/2c/27d32cc30f137e51bdea96552420fdce.jpg" />
 
